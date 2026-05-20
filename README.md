@@ -49,7 +49,7 @@ Interview Preparation
 
 GitHub: https://github.com/akhilnagapuri
 
-LinkedIn: https://linkedin.com/in/yourprofile
+LinkedIn: www.linkedin.com/in/akhil-nagapuri-533a0a306
 
 Email: nagapuriakhil44@gmail.com
 
