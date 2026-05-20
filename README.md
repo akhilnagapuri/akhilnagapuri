@@ -47,7 +47,7 @@ Interview Preparation
 
 🌐 Connect With Me
 
-GitHub: https://github.com/yourusername
+GitHub: https://github.com/akhilnagapuri
 
 LinkedIn: https://linkedin.com/in/yourprofile
 
